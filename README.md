@@ -1,5 +1,5 @@
 # AbdallahElamin
-# Hi there 👋 I'm [Your Name]
+# Hi there 👋 I'm [Abdallah Elamin]
 
 🚀 Passionate **Software Developer** | Open-Source Contributor | Tech Enthusiast  
 
